@@ -1,0 +1,7 @@
+# fit5171_2020_01
+
+# Group Members
+#   - PAUL FITZGERALD	
+#   - BISMITHA HUSSAIN
+#   - THI THUY TIEN HUYNH
+#   - HAOYU YANG
